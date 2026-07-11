@@ -11,3 +11,7 @@ it's all my fault. why did i bring other people into this? im so tired of myself
 i try to move on, but it just keeps screaming at me, everyone TELLS me to move on and to stop, but no one is actually helping.
 
 so hard to move on when i keep dreaming about him. i want to be okay. i want to move on. he's scared for his safety because of me. 
+
+i didnt want this. but i did at the same time. im disgusting. i'm  a terrible person.
+
+i want to be the little brother who stayed out of trouble again. not.. this. i dont even recognize myself anymore

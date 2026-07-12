@@ -15,3 +15,9 @@ so hard to move on when i keep dreaming about him. i want to be okay. i want to 
 i didnt want this. but i did at the same time. im disgusting. i'm  a terrible person.
 
 i want to be the little brother who stayed out of trouble again. not.. this. i dont even recognize myself anymore
+
+7/12/26
+
+i blocked nash last night. i already regret it. i hate myself so much. i just wish i could think before i act.
+
+i want him back. but how am i meant to reach back out omg i hate myself i fucking hate my life i never can have anything even if i go back that guilt will only keep getting worse until i snap again

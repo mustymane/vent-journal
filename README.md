@@ -21,3 +21,5 @@ i want to be the little brother who stayed out of trouble again. not.. this. i d
 i blocked nash last night. i already regret it. i hate myself so much. i just wish i could think before i act.
 
 i want him back. but how am i meant to reach back out omg i hate myself i fucking hate my life i never can have anything even if i go back that guilt will only keep getting worse until i snap again
+
+how am i even meant to talk to him do i just reach out and go "haha sorry for blocking you randomly and leaving" no?? what am i meant to do i dont want to force gash to talk to him for me its not his problem. im so scared to lose anybody else i just want to be happy i want to be able to move on without being haunted for it
